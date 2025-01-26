@@ -1,0 +1,1 @@
+# qimai-translator-privacy
